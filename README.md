@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SandhyaMourya
+- 👀 I’m interested in data analysis
+- 🌱 I’m currently learning analytical skills
+- 📫 How to reach me - email me on sandhya.mourya1998@gmail.com
+- LinkedIn : /in/sandhya-mourya-a03b46150
